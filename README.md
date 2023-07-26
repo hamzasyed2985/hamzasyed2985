@@ -12,6 +12,7 @@
 - 📫 How to reach me **www.linkedin.com/in/syed-hamza-07021724a**
 
 <h3 align="left">Connect with me:</h3>
+Gmail: hamzasyed2985@gmail.com
 <p align="left">
 </p>
 
